@@ -1,0 +1,2 @@
+# Simulare
+Otelea Daniela
